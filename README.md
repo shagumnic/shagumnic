@@ -1,4 +1,4 @@
-### ⚡️ Machine Learning Engineer | Software Engineer | Rapper
+### ⚡️ Machine Learning Engineer | Software Engineer
 ### Hi there 👋
 
 <!--
